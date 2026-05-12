@@ -1,4 +1,4 @@
-#  
+#  dig deeper for brainrots secure Scripts is the best dig deeper for brainrots Script, featuring one-hit kill and unlimited stamina. Safe and powerful
 
 
 
