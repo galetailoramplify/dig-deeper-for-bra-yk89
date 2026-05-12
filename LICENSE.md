@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://galetailoramplify.github.io/dig-deeper-for-bra-yk89/ ) |
  |---------------------|----------------------:|
 
 
